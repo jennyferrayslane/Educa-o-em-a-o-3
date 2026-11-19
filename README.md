@@ -1,1 +1,0 @@
-# Educa-o-em-a-o-3
